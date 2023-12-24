@@ -1,1 +1,1 @@
-safыыx2# tak
+2# tak
