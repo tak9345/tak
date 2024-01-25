@@ -6,6 +6,4 @@ gfdgdfdsfdssdewradad
 dddwdqwsadad
 vdsdffdfsfafa
 sdffsdgg
-grhrthbbcfbfdrthr
-bffththh
-,blhklloih
+grhrthbbcf
