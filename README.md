@@ -3,8 +3,6 @@ xASASsdfsafakll
 asqvsfssdsvdsfsfesd
 ssqsdcsdfefsf
 gfdgdfdsfdssdewradad
-dddwdqwsadad
-vdsdffdfsfafa
-sdffsdgg
+dddw
 grhrthbbcf
 fvdfsfaa
